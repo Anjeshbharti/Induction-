@@ -12,6 +12,7 @@
 
 <br> #Day 2 
 <br> First, all the students move to Gurudwara Sahib, we all listen Gurbani and teaching given by our Guru's. Then, we all move to auditorium.
+![Image](https://github.com/user-attachments/assets/3e82bcc1-e762-4a51-adcd-e4d20d5e85bb)
 
 A new opportunities arose by DR.Randhir Singh . He helped us by reverse behaviour and start interacting with others. He 
 asked for 7 boys and 7 girl to come on the stage to play LINE game and 
