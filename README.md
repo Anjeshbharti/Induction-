@@ -16,7 +16,7 @@ circle games the winners 🏆 get chocolates 🍫 as a prize. we all enjoyed the
 <br> Universal Human Values - Path of Happiness 😊 
 
 
-<br> Lecture of the was on Univeral Human Values, a subject that delves 
+<br> Lecture  was on Univeral Human Values, a subject that delves 
 into the essence of what it means to live a fulfilling and content life. We explore the concept of Happiness, the real happiness is asign with ous not with the materialistic things , it is about inner peace. The session was enlightening, providing a fresh perspective on how we can achive true happiness ☺️ 
 
 
