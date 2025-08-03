@@ -5,3 +5,4 @@ My first Repository
 
  <br>Our NSET Director introduced us to it's astonishing history, emphasizing its 70 years of shaping brilliant minds. 
  <br> I learned some essential lesson 
+<br> Then we all students visited their department ( according to their branch ) with our allotted Mentors 
