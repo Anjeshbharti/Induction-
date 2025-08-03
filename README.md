@@ -8,6 +8,7 @@
  <br> I learned some essential lesson 
 <br> Then we all students visited their department ( according to their branch ) with our allotted Mentors 
 
+![Image](https://github.com/user-attachments/assets/c6a62c58-2178-4598-b345-8f1d46b9927a)
 
 <br> #Day 2 
 <br> First, all the students move to Gurudwara Sahib, we all listen Gurbani and teaching given by our Guru's. Then, we all move to auditorium.
