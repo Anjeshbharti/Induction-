@@ -1,3 +1,4 @@
+#INDUCTION PROGRAM 🎉
 # MY EXPERIENCE AT GNDEC 🏫 -
 ![Image](https://github.com/user-attachments/assets/26ad6431-c03d-4f45-be0d-478cb067872b)
 <br>#Day 1
