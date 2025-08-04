@@ -20,6 +20,8 @@ A new opportunities arose by DR.Randhir Singh . He helped us by reverse behaviou
 asked for 7 boys and 7 girl to come on the stage to play LINE game and 
 circle games the winners 🏆 get chocolates 🍫 as a prize. we all enjoyed the game.
 
+![Image](https://github.com/user-attachments/assets/68e2abd1-9ffa-408d-89e4-e08714a85b92)
+
 <br> Then after break we get lecture on "UNIVERSAL HUMAN VALUES"
 <br> Universal Human Values - Path of Happiness 😊 
 
